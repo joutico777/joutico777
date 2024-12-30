@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @joutico777
 - 👀 I’m interested in moderating Discord servers
-- 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on nowhere
 - 📫 How to reach me discord: joutico777
 - 😄 Pronouns: He/His
